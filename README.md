@@ -1,1 +1,1 @@
-# DevOps_online__Vinnitsa__2020Q42021Q1
+# DevOps
